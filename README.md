@@ -2,7 +2,7 @@
 - 👀 I’m interested in HCM
 - 🌱 I’m currently learning management
 - 💞️ I’m looking to collaborate on Genomics
-- 📫 How to reach me XXXXXXXXX
+- 📫 How to reach me- email
 - 😄 Pronouns: He/Him
  
 
